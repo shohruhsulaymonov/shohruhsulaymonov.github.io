@@ -1,1 +1,0 @@
-# shohruhsulaymonov.github.io
